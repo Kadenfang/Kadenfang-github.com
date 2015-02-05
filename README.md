@@ -1,2 +1,0 @@
-# Kadenfang-github.com
-Blog
